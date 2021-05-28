@@ -1,13 +1,17 @@
+<h1>Let's safely use smartphones, etc.</h1>
+<h1>Let's make good traditioning toself. Thank you.</h1>
+<br/><br/><br/><br/>
+<h1>스마트 기기. 안전하게 사용합시다. </h1>
+<h1>좋은 습관을 만들어요. 감사합니다.</h1>
+<br/><br/><br/><br/>
+
 - 👋 Hi, I’m @infott2t.
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning programming language, react native.
 - 💞️ I’m looking to collaborate on  
 - 📫 How to reach me this site, https://blog.naver.com/tt2t2am1118. Thank you.
 <br/><br/><br/><br/>
-Let's safely use smartphones, etc. Let's make good traditioning toself. Thank you.
-<br/><br/>
-스마트 기기. 안전하게 사용합시다. 좋은 습관을 만들어요. 감사합니다.
-<br/><br/><br/><br/>
+
 
 좋은 하루 되세요. 
 <br/><br/><br/>

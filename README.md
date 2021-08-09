@@ -14,7 +14,11 @@
 
 Have a good day. And Hope good developing. How about this. I busy make coding for convinience like better than working enviroment. Thank you. How about this part. Let's developping. Thank you.
 
-좋은 하루 되세요. 
+ 
+좋은 하루 되세요. 스마트 팩토리. 개발해보세요~. 제가 만든 것처럼도 한번 만들어보세요~. 일자리가 더 좋아졌으면 좋겠습니다. 
+
+또, 안전하게 생활합시다. 감사합니다. And Let's safely live. Thank you.
+
 <br/><br/><br/>
 또, 교회. 다녀보세요. 기독교. 전화도 해보세요. 하고 싶은 말이라서 적게 되네요.
 Let's go church~. Jesus Christ. Calling~. Restting place. I like this writting. Let's go church~.

@@ -12,7 +12,7 @@
 - 📫 How to reach me this site, https://blog.naver.com/tt2t2am1118. Thank you.
 <br/><br/><br/><br/>
 
-Latest, change word in on readme.md file. Some hard using method, gitgub to me. Thank you.
+Have a good day. And Hope good developing. How about this. I busy make coding for convinience like better than working enviroment. Thank you. How about this part. Let's developping. Thank you.
 
 좋은 하루 되세요. 
 <br/><br/><br/>
@@ -20,4 +20,4 @@ Latest, change word in on readme.md file. Some hard using method, gitgub to me. 
 Let's go church~. Jesus Christ. Calling~. Restting place. I like this writting. Let's go church~.
 <br/><br/><br/>
 저의 글, 봐 주셔서 감사합니다.
- 
+Thank you, watching. Thank you. 

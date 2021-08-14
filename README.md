@@ -15,7 +15,7 @@
 Have a good day. And Hope good developing. How about this. I busy make coding for convinience like better than working enviroment. Thank you. How about this part. Let's developping. Thank you.
 
  
-좋은 하루 되세요. 스마트 팩토리. 개발해보세요~. 제가 만든 것처럼도 한번 만들어보세요~. 일자리가 더 좋아졌으면 좋겠습니다. 
+좋은 하루 되세요. 스마트 팩토리. 개발해보세요~. https://github.com/infott2t/smartFactory-ex. 제가 만든 것 처럼도 한번 만들어보세요~. 일자리가 더 좋아졌으면 좋겠습니다. 
 
 또, 안전하게 생활합시다. 감사합니다. And Let's safely live. Thank you.
 

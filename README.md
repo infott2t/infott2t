@@ -8,7 +8,7 @@
 - 👋 Hi, I’m @infott2t.
 - 👀 I’m interested in programming.
 - 🌱 I’m currently learning programming language, react native.
-- 💞️ I’m looking to collaborate on  
+- 💞️ I’m looking to collaborate on finding, learning.
 - 📫 How to reach me this site, https://blog.naver.com/tt2t2am1118. Thank you.
 <br/><br/><br/><br/>
 

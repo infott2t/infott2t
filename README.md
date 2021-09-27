@@ -12,7 +12,7 @@
 - 📫 How to reach me this site, https://blog.naver.com/tt2t2am1118. Thank you.
 <br/><br/><br/><br/>
 
-Have a good day. And Hope good developing. How about this. https://github.com/infott2t/smartFactory-ex. Let's devlopping make to way like that~. I busy make coding for convinience like better than working enviroment. Thank you. How about this part. Let's developping. Thank you.
+Have a good day. And Hope good developing. How about this. https://github.com/infott2t/smartFactory-ex. Let's developing make to way like that~. I busy make coding for convinience like better than working enviroment. Thank you. How about this part. Let's developping. Thank you.
 
  
 좋은 하루 되세요. 스마트 팩토리. 개발해보세요~. https://github.com/infott2t/smartFactory-ex. 제가 만든 것 처럼도 한번 만들어보세요~. 일자리가 더 좋아졌으면 좋겠습니다. 
